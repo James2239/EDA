@@ -1,0 +1,1 @@
+doing exloratory data analysis 
